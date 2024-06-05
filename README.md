@@ -1,1 +1,2 @@
-# barbaralima123
+# Bem vindo ao meu perfil 🍒
+meu nome é Bárbara
